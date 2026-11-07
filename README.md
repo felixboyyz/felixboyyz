@@ -20,4 +20,12 @@ I struggle with anxiety and can get overwhelmed easily sometimes, so please be p
 
 <a href="https://felixboiii.atabook.org/">Sign my guestbook! ♡</a>
 
+<br>
+
+<img src="https://64.media.tumblr.com/53544c5c6d60973156c878ec15f57bab/3fb6d99f99d54341-ea/s1280x1920/811facbd525b19b901156c72d38fc46815cd913d.pnj" width="300" alt="Decorative image">
+
+<br>
+
+<img src="https://cdn3.emoji.gg/emojis/3174-snack-astro.png" width="150" alt="Astro">
+
 </div>
