@@ -14,7 +14,7 @@
 
 <br>
 
-I struggle with anxiety and can get overwhelmed easily sometimes, so please be patient with me! I genuinely enjoy making friends, though, and I'm always happy to meet new people. Don't be afraid to say hi! :3
+I struggle with anxiety and can get overwhelmed easily sometimes, so please be patient with me! I genuinely enjoy making friends, though, and I'm always happy to meet new people. Don't be afraid to say hi! :3 <br><br> Also, if I am AFK (which I often am) feel free to whisper to me! I'll get back to you as soon as I can. ^-^
 
 <br>
 
