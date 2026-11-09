@@ -22,6 +22,13 @@ I struggle with anxiety and can get overwhelmed easily sometimes, so please be p
 
 <br>
 
+My (Current) Fandoms: <br>
+Dandy's World <br>
+South Park <br>
+Pokemon <br>
+*(If you have any recommendations, <br>feel free to give me them!)*
+
+<br>
 <img src="https://64.media.tumblr.com/53544c5c6d60973156c878ec15f57bab/3fb6d99f99d54341-ea/s1280x1920/811facbd525b19b901156c72d38fc46815cd913d.pnj" width="300" alt="Decorative image">
 
 <br>
