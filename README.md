@@ -6,9 +6,9 @@
 
 <img src="https://komarev.com/ghpvc/?username=felixboyyz&label=Peeps&color=blue" alt="Peeps">
 
-<br>
+<br> 
 
-<img src="https://64.media.tumblr.com/53544c5c6d60973156c878ec15f57bab/3fb6d99f99d54341-ea/s1280x1920/811facbd525b19b901156c72d38fc46815cd913d.pnj" width="300" alt="Decorative image">
+<img src="https://64.media.tumblr.com/53544c5c6d60973156c878ec15f57bab/3fb6d99f99d54341-ea/s1280x1920/811facbd525b19b901156c72d38fc46815cd913d.pnj" width="300" alt="Decorative image"> <br><br>
 
 **DNI:** Proshippers/darkshippers, minors, and anyone looking to start drama or be disrespectful.
 
