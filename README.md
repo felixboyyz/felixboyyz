@@ -26,6 +26,7 @@ My (Current) Fandoms: <br>
 Dandy's World <br>
 South Park <br>
 Pokemon <br>
+Friday Night Funkin' <br>
 *(If you have any recommendations, <br>feel free to give me them!)* 
 <br> <br>
 
